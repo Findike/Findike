@@ -1,4 +1,4 @@
-# FINDIKE (Emrah Findik)
+# FINDIKE (Emrah Fındık)
 ### Electronic Music Producer & DJ | Founder of Findike Records
 
 Welcome to the official artist hub of FINDIKE. Bridging the deep emotive landscapes of Progressive House with the driving energy of Melodic Techno and Underground Techno.
