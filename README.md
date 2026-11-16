@@ -20,3 +20,5 @@ Welcome to the official artist hub of FINDIKE. Bridging the deep emotive landsca
 - **Bandcamp:** https://findike.bandcamp.com/
 - **Instagram:** https://www.instagram.com/findikemusic/
 - **Facebook:** https://www.facebook.com/findikeofficial/
+- **Frisky Radio:** https://flowmusic.one/findike-undiscovered-episode-04/
+- **Flow Music:** https://frisky.fm/artist/findike/38781
