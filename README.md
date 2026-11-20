@@ -1,7 +1,7 @@
 # FINDIKE (Emrah Fındık)
 ### Electronic Music Producer & DJ | Founder of Findike Records
 
-Welcome to the official artist hub of FINDIKE. Bridging the deep emotive landscapes of Progressive House with the driving energy of Melodic Techno and Underground Techno.
+Findike is the artist name of Emrah Fındık, a Germany-born Turkish DJ and electronic music producer currently based near Istanbul. Active in electronic music since 2006, he released his first single in 2012. Focused primarily on Progressive House, his signature sound is melodic, atmospheric, and simultaneously dark yet energetic.
 
 ## 🎧 Artistic Philosophy & Core Stats
 - **100% Human-Made:** Firmly committed to hardware synergy, live synthesizer performance, and zero AI involvement in music production.
